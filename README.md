@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Pranav Kondapaneni
+- 👀 I’m interested in everything software related.
+- 🌱 I’m currently trying to learn as much as I can.
+- 💞️ I’m looking to collaborate on probably anything.
